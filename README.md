@@ -19,11 +19,7 @@ If you don't have an email address, you can use https://space.bilibili.com/13149
 
 If you are abroad but live in China, you can also use this email address
 Must be at the time
-7:00~9:00
-May be in time
-11:00~18:00
-Part of the absolute time
-22:00~7:00
+7:00~9:00    May be in time 11:00~18:00  Part of the absolute time  22:00~7:00
 This my made it for the first time, so don't spray it if you don't like it pls
 Because of the time relationship and the student party, the update will not be very fast
 
